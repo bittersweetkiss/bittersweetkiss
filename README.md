@@ -1,1 +1,1 @@
-MY USERNAME IS NOT KANGEL BASED ITS A MIX OF KYU AND ANGEL LEAVE ME ALONE
+yahh i lobee mi frins plss int yeah
