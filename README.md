@@ -1,1 +1,1 @@
-yahh i lobee mi frins plss int yeah
+hi i kiroooo i 4ten umm int i dont really mind and um c+h always lalala i perfer u let me know first so that im not a bit paranoid if im accidently covering u or not  but like u can just do it, evenutaly my brain will click it
